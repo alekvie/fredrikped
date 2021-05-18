@@ -1,1 +1,1 @@
-# forskningsmetode.github.io
+# https://alekvie.github.io/fredrikped/
